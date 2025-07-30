@@ -1,0 +1,1 @@
+What is more important is actuaully understanding the work, instead of of just rushing to finish. You need to know the work you do to complete tasks that you may be tasked to copmplete in the future. 
